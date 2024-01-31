@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GerezVotreImage
+- 👀 I’m interested in Vidéo Game
+- 🌱 I'm currently learning OFM thoroughly!
+- 📫 How to reach me: gerezvotreimage@gmail.com 
+- 😄 Pronouns: FvOx
+- ⚡ Fun fact: I'm way too strong for Fortnite
